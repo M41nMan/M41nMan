@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @M41nMan
+- 👀 I’m interested in Minecraft mods and stuff
+- 🌱 I’m currently learning coding with java and python
+- 📫 How to reach me on Discord: M41nMan#6818
